@@ -9,6 +9,7 @@
 - 📫 How to reach me **amitranjanmaurya10@gmail.com**
 
 - ⚡ Fun fact **I think I am funny👌**
+- ⚡ Education • Bachelors in Computer Science Engineering | Chandigarh University, Gharuan | 2021 - 2025 | • Intermediate (UP Board) | SVM inter college, Gorakhpur | 2021 - 2022 | 80.2% • 
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
